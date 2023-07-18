@@ -8,5 +8,4 @@ Whether you're a business leader, entrepreneur, or anyone looking to achieve lon
 
 Overall, "The Strategy Paradox: Why Committing to Success Leads to Failure (And What to Do About It)" is an essential read for anyone looking to challenge their assumptions about success and achieve their goals in a rapidly-changing world.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
