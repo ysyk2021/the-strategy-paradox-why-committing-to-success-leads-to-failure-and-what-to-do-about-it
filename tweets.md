@@ -8,5 +8,3 @@
 8. Success isn't always straightforward - but "The Strategy Paradox" can help you navigate the twists and turns. #StrategyParadox #Success #Failure
 9. Want to achieve long-term, sustainable success? "The Strategy Paradox" offers insights into why short-term thinking can lead to failure, and how to shift your mindset for lasting success. #StrategyParadox #Success #Failure
 10. Whether in business or life, "The Strategy Paradox" is a must-read for anyone looking to achieve true success. #StrategyParadox #Success #Failure
-
-
