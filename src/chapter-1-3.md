@@ -1,4 +1,4 @@
-Chapter: The Role of the Strategy Paradox
+The Role of the Strategy Paradox
 =========================================
 
 In the book *The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It*, this chapter explores the role of the strategy paradox in organizational success and failure. The strategy paradox refers to the counterintuitive notion that what makes a strategy successful in one context can lead to failure in another. Understanding the dynamics of the strategy paradox is essential for effective strategic planning and decision-making.

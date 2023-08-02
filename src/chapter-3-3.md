@@ -1,4 +1,4 @@
-Chapter: Overcoming Obstacles to Strategic Planning
+Overcoming Obstacles to Strategic Planning
 ===================================================
 
 In this chapter, we will explore the common obstacles that organizations face when engaging in strategic planning and discuss strategies for overcoming them. Strategic planning is a crucial process for setting organizational goals, defining strategies, and allocating resources effectively. However, various challenges can impede this process and hinder the successful implementation of strategic initiatives. By understanding these obstacles and implementing appropriate solutions, organizations can enhance their strategic planning efforts and increase their chances of achieving success.

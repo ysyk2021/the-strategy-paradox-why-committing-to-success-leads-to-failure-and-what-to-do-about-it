@@ -1,4 +1,4 @@
-Chapter: Techniques for Overcoming Cognitive Biases
+Techniques for Overcoming Cognitive Biases
 ===================================================
 
 In this chapter, we explore techniques for overcoming cognitive biases within the context of the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It." We delve into how cognitive biases can hinder effective decision-making and provide practical strategies to mitigate their impact.

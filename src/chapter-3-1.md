@@ -1,4 +1,4 @@
-Chapter: Understanding the Importance of a Growth Mindset in Strategic Planning
+Understanding the Importance of a Growth Mindset in Strategic Planning
 ===============================================================================
 
 In the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It," this chapter explores the significance of a growth mindset in the context of strategic planning. A growth mindset is characterized by a belief that abilities and intelligence can be developed through effort, learning, and perseverance. Understanding and cultivating a growth mindset within organizations can have a profound impact on strategic planning and execution.

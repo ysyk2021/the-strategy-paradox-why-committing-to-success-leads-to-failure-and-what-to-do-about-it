@@ -1,4 +1,4 @@
-Chapter: Understanding the Impact of Complexity on Strategic Planning
+Understanding the Impact of Complexity on Strategic Planning
 =====================================================================
 
 In the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It," comprehending the influence of complexity on strategic planning is essential in unraveling the intricacies of the strategy paradox. This chapter explores the challenges posed by complexity and offers insights into effectively navigating it during the strategic planning process.

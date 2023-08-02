@@ -1,4 +1,4 @@
-Chapter: Building Systems Thinking Skills
+Building Systems Thinking Skills
 =========================================
 
 In the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It," developing systems thinking skills is crucial for understanding complex dynamics, identifying underlying causes, and making more effective strategic decisions. This chapter explores strategies and methods for building systems thinking skills to navigate the challenges of the strategy paradox.

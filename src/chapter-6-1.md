@@ -1,4 +1,4 @@
-Chapter: The Impact of Risk and Uncertainty on Strategic Planning
+The Impact of Risk and Uncertainty on Strategic Planning
 =================================================================
 
 In the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It," understanding and managing risk and uncertainty are critical components of effective strategic planning. This chapter explores how risk and uncertainty impact strategic decision-making and provides strategies for mitigating their adverse effects.
