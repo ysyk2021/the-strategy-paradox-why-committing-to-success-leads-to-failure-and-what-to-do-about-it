@@ -1,7 +1,7 @@
 The Challenges of Strategic Planning
 =============================================
 
-In the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It," this chapter explores the various challenges that organizations face when engaging in strategic planning. Understanding these challenges is crucial for developing effective strategies that can navigate obstacles and lead to long-term success.
+This chapter explores the various challenges that organizations face when engaging in strategic planning. Understanding these challenges is crucial for developing effective strategies that can navigate obstacles and lead to long-term success.
 
 The Nature of Strategic Planning Challenges
 -------------------------------------------
