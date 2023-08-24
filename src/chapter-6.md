@@ -1,5 +1,3 @@
-Chapter 5: Managing Risk and Uncertainty
-========================================
 
 In strategic planning, risk and uncertainty are inevitable and can have a significant impact on the success of a strategy. However, by managing risk and uncertainty effectively, individuals and organizations can increase their chances of achieving their strategic goals.
 

@@ -1,5 +1,3 @@
-Building Skills through Strategic Planning
-=========================================================================================================
 
 In addition to applying strategic planning to business and organizational success, it can also be used for personal and professional growth. By setting goals and developing strategies to achieve them, individuals can enhance their skills and advance their careers.
 

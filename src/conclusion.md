@@ -1,4 +1,3 @@
-# Conclusion
 
 The ongoing journey of strategic planning and avoiding the strategy paradox
 ---------------------------------------------------------------------------

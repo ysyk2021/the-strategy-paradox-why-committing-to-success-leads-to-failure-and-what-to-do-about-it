@@ -1,5 +1,3 @@
-Chapter 6: Navigating Complexity
-================================
 
 In this chapter, we will explore the impact of complexity on strategic planning and techniques for navigating complex problems. We will also discuss the importance of building systems thinking skills in order to effectively navigate complexity.
 

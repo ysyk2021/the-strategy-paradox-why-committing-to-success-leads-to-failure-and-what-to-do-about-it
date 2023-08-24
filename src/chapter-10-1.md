@@ -1,5 +1,3 @@
-Using Strategic Planning for Career Development
-==============================================================================================================
 
 Strategic planning is not just applicable to organizations, but also to individual career development. By using strategic planning techniques, individuals can identify their career goals and develop strategies to achieve them. In this chapter, we will explore how to apply strategic planning to professional growth.
 

@@ -1,5 +1,3 @@
-Building Critical Thinking Skills
-==========================================
 
 In this chapter, we explore the importance of building critical thinking skills within the context of the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It." We delve into how critical thinking can enhance decision-making, foster innovation, and help individuals navigate the complexities of strategic planning.
 

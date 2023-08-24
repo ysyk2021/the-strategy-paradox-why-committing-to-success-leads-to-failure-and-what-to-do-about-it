@@ -1,5 +1,3 @@
-The Role of Cognitive Biases in Strategic Planning
-===========================================================
 
 In this chapter, we explore the influence of cognitive biases on strategic planning within the context of the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It." We delve into the various cognitive biases that can hinder effective decision-making and discuss strategies to mitigate their impact.
 

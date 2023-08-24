@@ -1,5 +1,3 @@
-Chapter 8: Applying Strategic Planning to Personal Growth
-=========================================================
 
 In this chapter, we will explore how strategic planning can be applied to personal growth and development. We will discuss the importance of using strategic planning for personal development, setting goals for personal growth, and incorporating self-reflection into the process.
 

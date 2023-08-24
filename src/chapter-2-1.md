@@ -1,5 +1,3 @@
-What is the Strategy Paradox?
-======================================
 
 In the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It," the concept of the strategy paradox is explored to shed light on the counterintuitive relationship between commitment to a particular strategy and the potential for failure. This chapter delves into the explanation and implications of the strategy paradox in strategic decision-making.
 

@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset for Strategic Planning
-=============================================================
 
 Developing a growth mindset is critical for effective strategic planning. A growth mindset involves the belief that one's abilities and intelligence can be developed through dedication, hard work, and learning from failure. In this chapter, we will explore the importance of a growth mindset in strategic planning, techniques for developing a growth mindset, and overcoming obstacles to strategic planning.
 

@@ -1,5 +1,3 @@
-Chapter 9: Applying Strategic Planning to Professional Growth
-=============================================================
 
 In this chapter, we will explore how strategic planning can be used to achieve professional growth and career success. We will discuss the importance of setting goals and building skills through strategic planning.
 

@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Cognitive Biases
-======================================
 
 Cognitive biases can play a significant role in strategic planning, leading individuals and organizations to make decisions that are not always rational or effective. In this chapter, we will explore the role of cognitive biases in strategic planning and techniques for overcoming them.
 

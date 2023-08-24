@@ -1,5 +1,3 @@
-Types of Strategic Failures
-====================================
 
 In the book "The Strategy Paradox: Why Committing to Success Leads to Failure and What to Do About It," understanding the various types of strategic failures is essential in unraveling the intricacies of the strategy paradox. This chapter explores different categories of strategic failures that can arise from unwavering commitment to a specific strategy.
 
