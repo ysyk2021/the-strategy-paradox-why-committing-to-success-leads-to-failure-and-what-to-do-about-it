@@ -1,5 +1,4 @@
-Chapter: Setting Goals for Professional Growth through Strategic Planning
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of setting goals for professional growth through strategic planning. We will discuss how committing to success can sometimes lead to failure and provide insights on leveraging strategic planning to set meaningful goals and achieve sustainable professional development.
 

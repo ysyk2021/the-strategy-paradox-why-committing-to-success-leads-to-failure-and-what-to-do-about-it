@@ -1,5 +1,4 @@
-Chapter: Building Skills through Strategic Planning
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of building skills through strategic planning and uncover how committing to success can sometimes lead to failure. We will also provide valuable insights on what can be done to address this paradox and achieve favorable outcomes.
 

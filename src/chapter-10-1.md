@@ -1,5 +1,4 @@
-Chapter: Using Strategic Planning for Career Development
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful connection between strategic planning and career development. We will delve into how committing to success without flexibility can lead to failure in the evolving job market, and provide insights on leveraging strategic planning to navigate your career path effectively.
 
